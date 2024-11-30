@@ -1,5 +1,5 @@
 # Digital Media's Impact on Psychological Resilience Among Young Adults
-
+![alt_image](https://d2jx2rerrg6sh3.cloudfront.net/images/news/ImageForNews_779364_17152150118702242.jpg)
 
 1. **Background of Study (300 words)**
 2. **Aim and Objectives (200 words)**
